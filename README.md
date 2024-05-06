@@ -3,6 +3,7 @@
 - 📫 How to reach me: 
      
 Discord - @a9t9
+
 Email - tellaia@yahoo.com
 
 <!---
